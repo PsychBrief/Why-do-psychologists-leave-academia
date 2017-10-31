@@ -1,1 +1,0 @@
-# Why-do-psychologists-leave-academia
